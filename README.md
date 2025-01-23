@@ -9,7 +9,7 @@ Welcome! You can find rehearsal shcedules and resources below. You can also find
 |----------------|---------------|
 |~~1/21 Tuesday~~|~~Auditions~~  |
 |~~1/22 Wednesday~~|             |
-|~~1/23 Thursday~~|               |
+|1/23 Thursday   |               |
 | 1/24 Friday    | 5-6pm at [TD-W 1703][TD-W 1703] |
 | 1/25 Saturday  | 2-3pm at [Studio Theater][Studio Theater]  |
 | 1/26 Sunday    | No Rehearsal-Andrew celebreating Chinese New Year :)|
