@@ -35,11 +35,11 @@ Welcome! You can find rehearsal shcedules and resources below. You can also find
 **We will go present either 2/4 or 2/6, no need to come to class the other day. Will update.
 
 # Places:
-Studio Theater: east end of department, where the auditions were held.
+[Studio Theater][Studio Theater]: east end of department, where the auditions were held.
 
-TD-W 1703: Small room on the other side of TD-W 1701 the giant lecture hall.
+[TD-W 1703][TD-W 1703]: Small room on the other side of TD-W 1701 the giant lecture hall.
 
-TD-W 1507: Inside the hallway across from 1701/1703, behind the giant medal doors.
+[TD-W 1507][TD-W 1507]: Inside the hallway across from 1701/1703, behind the giant medal doors.
 
 [Studio Theater]: https://maps.app.goo.gl/9ysWA1NwAuz8w3iJ6
 [TD-W 1703]: https://www.google.com/maps/place/34%C2%B024'46.3%22N+119%C2%B051'05.2%22W/@34.4127426,-119.8515302,57m/data=!3m1!1e3!4m4!3m3!8m2!3d34.412853!4d-119.851437?entry=ttu&g_ep=EgoyMDI1MDEyMC4wIKXMDSoASAFQAw%3D%3D
