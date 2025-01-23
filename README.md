@@ -32,6 +32,7 @@ Welcome! You can find rehearsal shcedules and resources below. You can also find
 
 
 *Open Rehearsals & final presentation: We will be presenting our scene to class. Only need to stay during our scene.
+
 **We will go present either 2/4 or 2/6, no need to come to class the other day. Will update.
 
 # Places:
