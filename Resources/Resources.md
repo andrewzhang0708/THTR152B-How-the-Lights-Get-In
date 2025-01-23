@@ -7,3 +7,6 @@
 Created by our class, this document explains unfamiliar words and terms in the script. Check it out when you get confused!
 
 **Character Quotes:** Everything about the character from the play. The lines marked with &#8594; are what I think define the character. They are in time order of the play.
+
+**Design Presentation:** https://docs.google.com/presentation/d/1N8TCLqUjQIUkWrqnYayUbMCH8GD1G1-o1ZSlP_0kGhg/edit#slide=id.g328e2d3709a_0_1000
+A presentation of design ideas (scenic, lighting, costume)
