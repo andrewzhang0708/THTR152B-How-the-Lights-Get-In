@@ -1,6 +1,6 @@
 # THTR152B-How-the-Lights-Get-In
 
-Welcome! You can find rehearsal shcedules and resources below. You can also find resources here.
+Welcome! You can find rehearsal shcedules and resources below. You can also find [resources](Resources/Resources.md) here.
 
 
 ## Rehearsal Schedule
