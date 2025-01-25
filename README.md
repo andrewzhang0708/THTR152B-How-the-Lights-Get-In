@@ -6,29 +6,30 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 ## Rehearsal Schedule
 
 | Date           | Time & Place  |     Log         |
-|----------------|---------------|                 |
+|----------------|---------------|-----------------|
 |~~1/21 Tuesday~~|~~Auditions~~  |                 |
 |~~1/22 Wednesday~~|             |                 |
 |~~1/23 Thursday~~|              |                 |
-|~~1/24 Friday~~ | 5-6pm at [TD-W 1703][TD-W 1703] | Intro; Koosh; thoughts on the play & scene; first readthrough |       
-| 1/25 Saturday  | 2-3pm at [Studio Theater][Studio Theater]  |
-| 1/26 Sunday    | Maybe: 12-1pm at [HSSB1143][HSSB1143]       | 
-| 1/27 Monday    | 3:30-4:30 at [TD-W 1507][TD-W 1507] |
-| 1/28 Tuesday   | No Rehearsal |
-| 1/29 Wednesday | No Rehearsal |
-| 1/30 Thursday  | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater]|
-| 1/31 Friday    | 3-4pm at [TD-W 1703][TD-W 1703] |
+|~~1/24 Friday~~ |~~5-6pm at [TD-W 1703][TD-W 1703]~~| Intro; Koosh; thoughts on the play & scene; first readthrough |       
+| 1/25 Saturday  | 2-3pm at [Studio Theater][Studio Theater]  | |
+| 1/25 Saturday  | 2-3pm at [Studio Theater][Studio Theater]  | |
+| 1/26 Sunday    | Maybe: 12-1pm at [HSSB1143][HSSB1143]       |  |
+| 1/27 Monday    | 3:30-4:30 at [TD-W 1507][TD-W 1507] |  |
+| 1/28 Tuesday   | No Rehearsal | |
+| 1/29 Wednesday | No Rehearsal | |
+| 1/30 Thursday  | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater]| |
+| 1/31 Friday    | 3-4pm at [TD-W 1703][TD-W 1703] | |
 | 2/1 Saturday   | No Rehearsal-Amplify GO Festival |
-| 2/2 Sunday     | Maybe: 1-2pm at [Studio Theater][Studio Theater] |
-| 2/3 Monday     | 4-5pm at [TD-W 1703][TD-W 1703] |
-| 2/4 Tuesday    | Open Rehearsal** with class & Risa 3-5 pm at [Studio Theater][Studio Theater]|
-| 2/5 Wednesday  | No Rehearsal |
-| 2/6 Thursday   | Open Rehearsal** with class & Risa 3-5 pm at [Studio Theater][Studio Theater] |
-| 2/7 Friday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! |
-| 2/8 Saturday   | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! |
-| 2/9 Sunday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! |
-| 2/10 Monday    | TBD but we definitely should rehearse today or tomorrow |
-| 2/11 Tuesday   | Final Presentation* with class & Risa 3-5pm at [Studio Theater][Studio Theater]|
+| 2/2 Sunday     | Maybe: 1-2pm at [Studio Theater][Studio Theater] | |
+| 2/3 Monday     | 4-5pm at [TD-W 1703][TD-W 1703] | |
+| 2/4 Tuesday    | Open Rehearsal** with class & Risa 3-5 pm at [Studio Theater][Studio Theater]| |
+| 2/5 Wednesday  | No Rehearsal | |
+| 2/6 Thursday   | Open Rehearsal** with class & Risa 3-5 pm at [Studio Theater][Studio Theater] | |
+| 2/7 Friday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
+| 2/8 Saturday   | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
+| 2/9 Sunday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
+| 2/10 Monday    | TBD but we definitely should rehearse today or tomorrow | |
+| 2/11 Tuesday   | Final Presentation* with class & Risa 3-5pm at [Studio Theater][Studio Theater]| |
 
 
 *Open Rehearsals & final presentation: We will be presenting our scene to class. Only need to stay during our scene.
