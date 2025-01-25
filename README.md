@@ -12,7 +12,6 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~1/23 Thursday~~|              |                 |
 |~~1/24 Friday~~ |~~5-6pm at [TD-W 1703][TD-W 1703]~~| Intro; Koosh; thoughts on the play & scene; first readthrough |       
 | 1/25 Saturday  | 2-3pm at [Studio Theater][Studio Theater]  | |
-| 1/25 Saturday  | 2-3pm at [Studio Theater][Studio Theater]  | |
 | 1/26 Sunday    | Maybe: 12-1pm at [HSSB1143][HSSB1143]       |  |
 | 1/27 Monday    | 3:30-4:30 at [TD-W 1507][TD-W 1507] |  |
 | 1/28 Tuesday   | No Rehearsal | |
