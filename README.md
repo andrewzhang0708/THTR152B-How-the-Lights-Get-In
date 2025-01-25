@@ -18,7 +18,7 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 | 1/29 Wednesday | No Rehearsal | |
 | 1/30 Thursday  | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater]| |
 | 1/31 Friday    | 3-4pm at [TD-W 1703][TD-W 1703] | |
-| 2/1 Saturday   | No Rehearsal-Amplify GO Festival |
+| 2/1 Saturday   | No Rehearsal-[Amplify GO Festival][Amplify Go Festival] |
 | 2/2 Sunday     | Maybe: 1-2pm at [Studio Theater][Studio Theater] | |
 | 2/3 Monday     | 4-5pm at [TD-W 1703][TD-W 1703] | |
 | 2/4 Tuesday    | Open Rehearsal** with class & Risa 3-5 pm at [Studio Theater][Studio Theater]| |
@@ -49,4 +49,5 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 [TD-W 1507]: https://www.google.com/maps/place/34%C2%B024'44.9%22N+119%C2%B051'06.3%22W/@34.4123736,-119.8517677,81m/data=!3m1!1e3!4m4!3m3!8m2!3d34.412467!4d-119.851762?entry=ttu&g_ep=EgoyMDI1MDEyMC4wIKXMDSoASAFQAw%3D%3D
 [HSSB 1143]: https://maps.app.goo.gl/chgVj2j5VaCt3Pwy8
 [Sweeney Todd]: https://www.instagram.com/p/DE_BbOey8Ld/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
+[Amplify Go Festival]: https://www.instagram.com/p/DFN6BAES21s/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
 
