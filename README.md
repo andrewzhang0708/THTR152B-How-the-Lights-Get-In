@@ -12,12 +12,12 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~1/23 Thursday~~|              |                 |
 |~~1/24 Friday~~ |~~5-6pm at [TD-W 1703][TD-W 1703]~~| Intro; Koosh; thoughts on the play & scene; first readthrough |       
 |~~1/25 Saturday~~|~~2-3pm at [Studio Theater][Studio Theater]~~| Set intro; studio intro; Koosh; best/worst thing to happen; drawing |
-| 1/26 Sunday    | 7:30-9pm at [HSSB 1143][HSSB 1143]       |  |
-| 1/27 Monday    | 3:30-4:30 at [TD-W 1507][TD-W 1507] |  |
-| 1/28 Tuesday   | Maybe: 5-6pm at [Studio Theater][Studio Theater] | |
+|~~1/26 Sunday~~| 7:30-9pm at [~~HSSB 1143][HSSB 1143]~~| Driving, biking, walking in the rain; Koosh; share drawings; table work without a table; we had one umbrella; walking, driving, biking in the rain |
+| 1/27 Monday    | will change: 3:30-4:30 at [TD-W 1507][TD-W 1507] |  |
+| 1/28 Tuesday   | 5-6pm at [Studio Theater][Studio Theater] (Miranda at 5:30) | |
 | 1/29 Wednesday | No Rehearsal | |
 | 1/30 Thursday  | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater]| |
-| 1/31 Friday    | 3-4 (maybe 5)pm at [TD-W 1703][TD-W 1703] | |
+| 1/31 Friday    | 3-5pm at [TD-W 1703][TD-W 1703] | |
 | 2/1 Saturday   | No Rehearsal-[Amplify GO Festival][Amplify Go Festival] |
 | 2/2 Sunday     | Maybe: 1-2pm at [Studio Theater][Studio Theater] | |
 | 2/3 Monday     | 4-5pm at [TD-W 1703][TD-W 1703] | |
