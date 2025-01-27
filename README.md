@@ -12,7 +12,7 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~1/23 Thursday~~|              |                 |
 |~~1/24 Friday~~ |~~5-6pm at [TD-W 1703][TD-W 1703]~~| Intro; Koosh; thoughts on the play & scene; first readthrough |       
 |~~1/25 Saturday~~|~~2-3pm at [Studio Theater][Studio Theater]~~| Set intro; studio intro; Koosh; best/worst thing to happen; drawing |
-|~~1/26 Sunday~~| 7:30-9pm at [~~HSSB 1143][HSSB 1143]~~| Driving, biking, walking in the rain; Koosh; share drawings; table work without a table; we had one umbrella; walking, driving, biking in the rain |
+|~~1/26 Sunday~~|~~7:30-9pm at [HSSB 1143][HSSB 1143]~~| Driving, biking, walking in the rain; Koosh; share drawings; table work without a table; we had one umbrella; walking, driving, biking in the rain |
 | 1/27 Monday    | will change: 3:30-4:30 at [TD-W 1507][TD-W 1507] |  |
 | 1/28 Tuesday   | 5-6pm at [Studio Theater][Studio Theater] (Miranda at 5:30) | |
 | 1/29 Wednesday | No Rehearsal | |
