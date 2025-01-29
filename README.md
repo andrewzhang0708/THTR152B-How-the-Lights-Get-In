@@ -16,7 +16,7 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~1/27 Monday~~|~~4:30-5:30pm at [TD-W 1507][TD-W 1507]~~| Blocking; mansplaining |
 | 1/28 Tuesday   | 5-6pm at [Studio Theater][Studio Theater] (Miranda at 5:30) | Working on opening part; New Year Gifts! |
 | 1/29 Wednesday | No Rehearsal | |
-| 1/30 Thursday  | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater]| |
+| 1/30 Thursday  | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time 3pm| |
 | 1/31 Friday    | 3-5pm at [TD-W 1703][TD-W 1703] | |
 | 2/1 Saturday   | No Rehearsal-[Amplify GO Festival][Amplify Go Festival] |
 | 2/2 Sunday     | Maybe: 1-2pm at [Studio Theater][Studio Theater] | |
