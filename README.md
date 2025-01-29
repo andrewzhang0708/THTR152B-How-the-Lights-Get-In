@@ -14,7 +14,7 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~1/25 Saturday~~|~~2-3pm at [Studio Theater][Studio Theater]~~| Set intro; studio intro; Koosh; best/worst thing to happen; drawing |
 |~~1/26 Sunday~~|~~7:30-9pm at [HSSB 1143][HSSB 1143]~~| Driving, biking, walking in the rain; Koosh; share drawings; table work without a table; we had one umbrella; walking, driving, biking in the rain |
 |~~1/27 Monday~~|~~4:30-5:30pm at [TD-W 1507][TD-W 1507]~~| Blocking; mansplaining |
-| 1/28 Tuesday   | 5-6pm at [Studio Theater][Studio Theater] (Miranda at 5:30) | |
+| 1/28 Tuesday   | 5-6pm at [Studio Theater][Studio Theater] (Miranda at 5:30) | Working on opening part; New Year Gifts! |
 | 1/29 Wednesday | No Rehearsal | |
 | 1/30 Thursday  | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater]| |
 | 1/31 Friday    | 3-5pm at [TD-W 1703][TD-W 1703] | |
@@ -27,7 +27,7 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 | 2/7 Friday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
 | 2/8 Saturday   | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
 | 2/9 Sunday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
-| 2/10 Monday    | TBD but we definitely should rehearse today or tomorrow | |
+| 2/10 Monday    | 8-10pm at [Studio Theater][Studio Theater] | |
 | 2/11 Tuesday   | Final Presentation* with class & Risa 3-5pm at [Studio Theater][Studio Theater]| |
 
 
