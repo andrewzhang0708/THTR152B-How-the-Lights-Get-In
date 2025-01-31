@@ -24,7 +24,7 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 | 2/4 Tuesday    | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time: 3pm| |
 | 2/5 Wednesday  | No Rehearsal | |
 | 2/6 Thursday   | Maybe: 9-10am at [TD-W 1703][TD-W 1703] | |
-| 2/7 Friday     | Maybe: 12-1pm at [TD-W 1703][TD-W 1703] <br> Miranda at [Sweeney Todd][Sweeney Todd]!! | |
+| 2/7 Friday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
 | 2/8 Saturday   | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
 | 2/9 Sunday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
 | 2/10 Monday    | 8-10pm at [Studio Theater][Studio Theater] | |
