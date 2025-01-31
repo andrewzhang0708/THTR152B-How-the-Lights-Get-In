@@ -15,16 +15,16 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~1/26 Sunday~~|~~7:30-9pm at [HSSB 1143][HSSB 1143]~~| Driving, biking, walking in the rain; Koosh; share drawings; table work without a table; we had one umbrella; walking, driving, biking in the rain |
 |~~1/27 Monday~~|~~4:30-5:30pm at [TD-W 1507][TD-W 1507]~~| Blocking; mansplaining |
 |~~1/28 Tuesday~~|~~5-6pm at [Studio Theater][Studio Theater] (Miranda at 5:30)~~| Working on opening part; New Year Gifts! |
-|1/29 Wednesday| No Rehearsal | |
-| 1/30 Thursday  | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time 3pm| |
+|~~1/29 Wednesday~~|~~No Rehearsal~~| |
+|~~1/30 Thursday~~|~~Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time 3pm~~|  |
 | 1/31 Friday    | 3-5pm at [TD-W 1703][TD-W 1703] | |
 | 2/1 Saturday   | No Rehearsal-[Amplify GO Festival][Amplify Go Festival] |
 | 2/2 Sunday     | Maybe: 1-2pm at [Studio Theater][Studio Theater] | |
 | 2/3 Monday     | 4-5pm at [TD-W 1703][TD-W 1703] | |
-| 2/4 Tuesday    | Open Rehearsal** with class & Risa 3-5 pm at [Studio Theater][Studio Theater]| |
+| 2/4 Tuesday    | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time: 3pm| |
 | 2/5 Wednesday  | No Rehearsal | |
-| 2/6 Thursday   | Open Rehearsal** with class & Risa 3-5 pm at [Studio Theater][Studio Theater] | |
-| 2/7 Friday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
+| 2/6 Thursday   | Maybe: 9-10am at [TD-W 1703][TD-W 1703] | |
+| 2/7 Friday     | Maybe: 12-1pm at [TD-W 1703][TD-W 1703] <br> Miranda at [Sweeney Todd][Sweeney Todd]!! | |
 | 2/8 Saturday   | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
 | 2/9 Sunday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
 | 2/10 Monday    | 8-10pm at [Studio Theater][Studio Theater] | |
@@ -33,7 +33,6 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 
 *Open Rehearsals & final presentation: We will be presenting our scene to class. Only need to stay during our scene.
 
-**We will go present either 2/4 or 2/6, no need to come to class the other day. Will update.
 
 # Places:
 [Studio Theater][Studio Theater]: east end of department, where the auditions were held.
