@@ -17,11 +17,11 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~1/28 Tuesday~~|~~5-6pm at [Studio Theater][Studio Theater] (Miranda at 5:30)~~| Working on opening part; New Year Gifts! |
 |~~1/29 Wednesday~~|~~No Rehearsal~~| |
 |~~1/30 Thursday~~|~~Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time 3pm~~|  |
-| 1/31 Friday    | 3-5pm at [TD-W 1703][TD-W 1703] | |
-| 2/1 Saturday   | No Rehearsal-[Amplify GO Festival][Amplify Go Festival] |
-| 2/2 Sunday     | Maybe: 1-2pm at [Studio Theater][Studio Theater] | |
-| 2/3 Monday     | TBD | |
-| 2/4 Tuesday    | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time: 3pm| |
+|~~1/31 Friday~~| 3-5pm at [TD-W 1703][TD-W 1703] | Koosh; Blocking; Intimacy blocking; Runthrough |
+|~~2/1 Saturday~~|~~No Rehearsal-[Amplify GO Festival][Amplify Go Festival]~~| |
+|~~2/2 Sunday~~| 1-1:30pm at [Studio Theater][Studio Theater] | Runthrough; 20<sup>th</sup> Centry Fox |
+| 2/3 Monday     |No Rehearsal | |
+| 2/4 Tuesday    | Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time: 3:20pm| |
 | 2/5 Wednesday  | No Rehearsal | |
 | 2/6 Thursday   | Maybe: 9-10am at [TD-W 1703][TD-W 1703] | |
 | 2/7 Friday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
