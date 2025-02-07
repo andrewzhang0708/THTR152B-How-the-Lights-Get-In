@@ -22,11 +22,11 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~2/2 Sunday~~|~~1-1:30pm at [Studio Theater][Studio Theater]~~| Runthrough; 20<sup>th</sup> Centry Fox |
 |~~2/3 Monday~~|~~No Rehearsal~~| |
 |~~2/4 Tuesday~~|~~Open Rehearsal* with class & Risa 3-5 pm at [Studio Theater][Studio Theater] <br> Call time: 3:20pm~~| |
-| 2/5 Wednesday  | No Rehearsal | |
-| 2/6 Thursday   | 9-10am at [TD-W 1703][TD-W 1703] | |
-| 2/7 Friday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
-| 2/8 Saturday   | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
-| 2/9 Sunday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | |
+|~~2/5 Wednesday~~|~~No Rehearsal~~| |
+|~~2/6 Thursday~~|~~9-10am at [TD-W 1703][TD-W 1703]~~| Koosh; Opening moment; confession moment |
+| 2/7 Friday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | Break a leg! |
+| 2/8 Saturday   | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | Break a leg! |
+| 2/9 Sunday     | No Rehearsal-Miranda at [Sweeney Todd][Sweeney Todd]!! | Break a leg! |
 | 2/10 Monday    | 8-10pm at [Studio Theater][Studio Theater] | |
 | 2/11 Tuesday   | Final Presentation* with class & Risa 3-5pm at [Studio Theater][Studio Theater]| |
 
