@@ -26,7 +26,7 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~2/6 Thursday~~|~~9-10am at [TD-W 1703][TD-W 1703]~~| Koosh; Opening moment; confession moment |
 |~~2/7 Friday~~| Miranda at [Sweeney Todd][Sweeney Todd]!! | Break a leg! |
 |~~2/8 Saturday~~| Miranda at [Sweeney Todd][Sweeney Todd]!! | Break a leg! :tada::tada::tada:|
-|2/9 Sunday| Miranda at [Sweeney Todd][Sweeney Todd]!! | Break a leg! |
+|~~2/9 Sunday~~| Miranda at [Sweeney Todd][Sweeney Todd]!! | Congratulations!! :tada::tada::tada: |
 | 2/10 Monday    | 8-10pm at [Studio Theater][Studio Theater] | |
 | 2/11 Tuesday   | Final Presentation* with class & Risa 3-5pm at [Studio Theater][Studio Theater]| |
 
