@@ -28,7 +28,7 @@ Welcome! You can find rehearsal schedules below. You can also find [resources](R
 |~~2/8 Saturday~~| Miranda at [Sweeney Todd][Sweeney Todd]!! | Break a leg! :tada::tada::tada:|
 |~~2/9 Sunday~~| Miranda at [Sweeney Todd][Sweeney Todd]!! | Congratulations!! :tada::tada::tada: |
 |~~2/10 Monday~~|~~8-10pm at [Studio Theater][Studio Theater]~~| Koosh (Z!); blocking; running through; photos! <br> Break a leg!! I'm super proud of us :heart: |
-| 2/11 Tuesday   | Final Presentation* with class & Risa 3-5pm at [Studio Theater][Studio Theater]| |
+|~~2/11 Tuesday~~|~~Final Presentation* with class & Risa 3-5pm at [Studio Theater][Studio Theater]~~| Happy Closing! :tada: |
 
 
 *Open Rehearsals & final presentation: We will be presenting our scene to class. Only need to stay during our scene.
